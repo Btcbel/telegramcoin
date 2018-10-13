@@ -1,1 +1,1 @@
-# bottelegramcoin.github.io
+# telegramofferingcoin.github.io
